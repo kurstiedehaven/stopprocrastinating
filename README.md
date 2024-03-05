@@ -40,6 +40,7 @@ For additional questions, you can reach me through:
 
 - GitHub: [kurstiedehaven](https://github.com/kurstiedehaven)
 - Email: kurstiedehaven@gmail.com
+![Screenshot 2024-03-04 at 11 26 15 PM](https://github.com/kurstiedehaven/stopprocrastinating/assets/134163209/e4654716-8b2a-45f8-8702-90148ff26707)
 
 ---
 
